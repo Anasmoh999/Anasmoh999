@@ -8,12 +8,12 @@ Ralph Waldo Emerson once said: " Unless you try to do something beyond what you 
 
 Experienced Automation Project Engineer. Strong engineering professional with a Bachelor of Engineering - BE focused in Mechatronics, Robotics, and Automation Engineering from The Hashemite University.
 
-Intersted in Industrial Automation: SCADA, Control Systems, Instrumentation, IIOT. 
+Interested in Industrial Automation: SCADA, Control Systems, Instrumentation, IIOT.
 
-Intersted in Industry 4.0: Robotics, IOT, AI, ML, VR, Data Science, Big Data, Intellectualization, Digital Transformation, 3D Printing, Cyber Security. 
+Interested in Industry 4.0: Robotics, IOT, AI, ML, VR, Data Science, Big Data, Intellectualization, Digital Transformation, 3D Printing, Cyber Security.
 
-Skilled in Programming Languages: Python, C,C++, Matlab, and skilled in design software: Fusion 360.
+Skilled in Programming Languages: Python, C,C++, MATLAB, and skilled in design software: Fusion 360.
 
-Intrested in Publications & Researches, Already I have a research paper, and enthusiast to be a representative and presenter at scientific conferences. 
+Interested in Publications & Researches, Already I have a research paper, and enthusiast to be a representative and presenter at scientific conferences.
 
-Among my hobbies are Sports, Video Games, Films, and learning more and more Programming Languages, Computer Systems and Networks. 
+Among my hobbies are Sports, Video Games, Films, and learning more and more Programming Languages, Computer Systems and Networks.
