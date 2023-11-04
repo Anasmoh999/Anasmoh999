@@ -10,7 +10,4 @@ Interested in Industrial Automation: SCADA, Control Systems, Instrumentation, II
 
 Interested in Publications & Researches, Already I have a research paper, and enthusiast to be a representative and presenter at scientific conferences.
 
-Among my hobbies are Sports, Video Games, Films, Reading, and learning more and more Programming Languages, Computer Systems and Networks.
-
-
-
+Among my hobbies are Sports, Video Games, Films, Reading, and learning more and more Programming Languages, Computing Systems and Networks.
